@@ -1,2 +1,0 @@
-# Mnp
-Mnp Technologies
